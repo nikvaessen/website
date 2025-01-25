@@ -22,7 +22,7 @@ Here's a list of my favourites:
 
 I am in the process of obtaining a PhD from [Radboud University](https://www.ru.nl).
 
-## My history using a computer
+## Minor life-story ;)
 
 I first interacted with a personal computer around the age of 6, at my grandparents place.
 At home, we did not have a personal computer at the time, but my granddad had a computer in order to work with spreadsheets, with an internet connection!
